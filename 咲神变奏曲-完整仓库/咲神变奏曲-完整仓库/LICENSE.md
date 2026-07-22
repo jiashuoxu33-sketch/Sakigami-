@@ -1,4 +1,4 @@
-Required Notice: Copyright (c) 2026 云 & 水 & KK
+Required Notice: Copyright (c) 2026 潮 & 汐 
 
 # PolyForm Noncommercial License 1.0.0
 
